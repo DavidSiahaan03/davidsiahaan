@@ -1,2 +1,2 @@
 # davidsiahaan
-![alt text](https://github.com/user-attachments/assets/17c704e0-286d-4d7c-9b7e-02f32d8152e6?raw=true)
+![alt text](https://github.com/DavidSiahaan03/davidsiahaan/blob/6248dbe4e594324b546aae3630441e8e802992eb/itachi-forger-pointing.png?raw=true)
