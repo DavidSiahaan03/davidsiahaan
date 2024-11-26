@@ -1,2 +1,3 @@
 # davidsiahaan
-![itachi-forger-pointing.png](https://github.com/DavidSiahaan03/davidsiahaan/blob/6248dbe4e594324b546aae3630441e8e802992eb/itachi-forger-pointing.png?raw=true)
+
+![itachi-forger-pointing](https://github.com/user-attachments/assets/10a6ee0f-2a05-4820-9872-1d1905a8e8fe)
